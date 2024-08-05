@@ -1,6 +1,4 @@
-**[点我获取源码](https://x-x.fun/e/WV5869a447V5i)💕🤞**
-
-**[点我获取源码+论文参考示例](https://x-x.fun/e/AVf77fb679IVz)💕🤞**
+![gh_17810254f3db_258](https://github.com/user-attachments/assets/f76c2152-02c5-4a7c-ac39-417cf7b599a7)
 
 **郑重声明：项目经过本地测试，确保可以运行。由于精力有限，不提供调试服务，项目仅供学习和毕业设计参考~**
 
